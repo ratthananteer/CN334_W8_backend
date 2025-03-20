@@ -1,1 +1,0 @@
-ratthanan teeratranon 6610742022
